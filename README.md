@@ -1,1 +1,1 @@
-javascript-for-beginners
+Techeer Partners
